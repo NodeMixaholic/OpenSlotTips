@@ -1,5 +1,5 @@
 # OpenSlotTips
-Slot tips for the newbie to "gaming"
+Slot tips for the newbie to "gaming" (including myself)
 
 * 3-5 pulls per machine type
 	* Once per every machine

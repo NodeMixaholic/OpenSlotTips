@@ -23,3 +23,5 @@ Slot tips for the newbie to "gaming"
 	* You really want a .000015 chance of getting rich
 * Try betting with machines with bonus features
 	* Unless it's too expensive and you have like 20$
+---
+Licensed under the CC0 1.0 Universal license

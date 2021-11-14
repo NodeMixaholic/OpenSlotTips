@@ -5,7 +5,7 @@ Slot tips for the newbie to "gaming" (including myself)
 * 3-5 pulls per machine type
 	* Once per every machine
 	* 3 pulls if you have 20-50$, 5 pulls if you have 50$ or above
-	* Once you get the "taste", or small inital payout from that machine or bank of machines to entice people, you will want go to another machine as well.
+	* Once you get the "taste", or small inital payout from that machine to entice people, you will want go to another machine as well.
 * 1 cent to 25 cent denominations recommended... 
 * You don't have to bet max to get max payback on video slots
 	* So try betting 1-25 credits on "penny slots" if possible, and try to bet 2-6 credits on "quarter slots" if possible.

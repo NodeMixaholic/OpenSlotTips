@@ -22,7 +22,7 @@ Slot tips for the newbie to "gaming" (including myself)
 	* You don't want to lose all your money as fast
 	* You prefer having fun
 * Use progressive slots only if...
-	* You really want a .000015 chance of getting rich (or so...)
+	* You really want a .000015 chance of getting rich (or some odds along those.)
 * Try betting with machines with bonus features
 	* Unless it's too expensive and you have like 20$
 ---

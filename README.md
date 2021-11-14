@@ -17,7 +17,7 @@ Slot tips for the newbie to "gaming" (including myself)
 	* Note that even if the machines look alike, they can have different payout rates.
 		* So the outcome can really make a difference
 * Winning (loose) machines often found in highly visible areas, but **not always.**
-	* So it is recommended to pick a highly visible machine
+	* So try to pick a highly visible machine
 	* Not in a crowded area however.
 * Try to avoid progressive slots if...
 	* You don't want to lose all your money as fast

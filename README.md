@@ -9,6 +9,7 @@ Slot tips for the newbie to "gaming" (including myself)
 * 1 cent to 25 cent denominations recommended... 
 * You don't have to bet max to get max payback on video slots
 	* So try betting 1-25 credits on "penny slots" if possible, and try to bet 2-6 credits on "quarter slots" if possible.
+	* To calculate the amount you are going to spend: `CREDITS*SLOT_WORTH=SLOT_SPEND`
 * Better of betting more if it has a mystery bonus, however
 	* Because it's triggered by the amount of coins waigered on the game/bank of games.
 	* When you are play on mystery you are not betting money on the spins.

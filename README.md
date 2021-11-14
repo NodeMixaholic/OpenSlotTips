@@ -16,7 +16,7 @@ Slot tips for the newbie to "gaming" (including myself)
 * If amount of bets and payouts visible, prefer more bets over payouts.
 	* Note that even if the machines look alike, they can have different payout rates.
 		* So the outcome can really make a difference
-* Winning (loose) machines often found in highly visible areas.
+* Winning (loose) machines often found in highly visible areas, but **not always.**
 	* So it is recommended to pick a highly visible machine
 	* Not in a crowded area however.
 * Try to avoid progressive slots if...
@@ -28,5 +28,5 @@ Slot tips for the newbie to "gaming" (including myself)
 	* Unless it's too expensive and you have like 20$
 * Note that cruise ship slots have 0 regulation.
 	* So none of the things I just said are necessarily a thing on said casinos.
----
+- - - -
 Licensed under the CC0 1.0 Universal license

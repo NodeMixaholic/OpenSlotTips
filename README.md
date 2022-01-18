@@ -16,7 +16,7 @@ Slot tips for the newbie to "gaming" (including myself)
 * Try to ***avoid progressive slots.***
   * These are ***slots that, as people put money in, the jackpot grows until someone gets the jackpot***; then it starts over.
 * Try betting with machines with ***bonus features, unless it's too expensive.***
-* Note that ***cruise ship slots have 0 regulation.***
+* Note that ***cruise ship casinos have almost 0 regulation.***
 	* So nothing is necessarily a thing on said casinos.
 	
 - - - -

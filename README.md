@@ -28,5 +28,7 @@ Slot tips for the newbie to "gaming" (including myself)
 	* Unless it's too expensive and you have like 20$
 * Note that cruise ship slots have 0 regulation.
 	* So none of the things I just said are necessarily a thing on said casinos.
-- - - -
+
+---
+
 Licensed under the CC0 1.0 Universal license

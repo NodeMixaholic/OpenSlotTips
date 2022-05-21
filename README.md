@@ -18,7 +18,7 @@ Slot tips for the newbie to "gaming" (including myself), based off of Professor 
 * Try betting with machines with ***bonus features, unless it's too expensive.***
 * Note that ***cruise ship casinos have almost 0 regulation.***
 	* So nothing is necessarily a thing on said casinos.
-* If it's been more than 3 hours: try once more. If you win: try every 3 hours.
+* If it's been more than 3 hours: try once more. If you win a ***micro-taste***: try every 3 hours.
 * Most if not youtubers who claim to be "casino techs" or something of the like are most likely scam artists.
 	* If theu ARE a tech, they are likely breaking a NDA, which they really shouldn't want to do.
 

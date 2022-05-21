@@ -4,7 +4,7 @@ Slot tips for the newbie to "gaming" (including myself), based off of Professor 
 
 * ***Only spend what you are willing to lose***
 * ***5 pulls, 1 cent, 1-90 credits (maximum)*** required... 
-* ***3 pulls, 1 cent, 1-25 credits (maximum)*** recommended... 
+* ***3 pulls, 1 cent, 1-78 credits (maximum)*** recommended... 
 	* ***Once per every machine type***
 	* ***Once you get the "taste"***, or small initial payout from that machine to entice people, you will want ***go to another type of machine*** as well.
 	* Note that ***even if the machines look alike, they can have different payout rates.***
@@ -31,7 +31,7 @@ Slot tips for the newbie to "gaming" (including myself), based off of Professor 
 ## My own tip
 
 * Most if not youtubers who claim to be "casino techs" or something of the like are most likely scam artists.
-	* If theu ARE a tech, they are likely breaking a NDA, which they really shouldn't want to do.
+	* If they ARE a tech, they are likely breaking a NDA, which they really shouldn't want to do.
 
 - - - -
 

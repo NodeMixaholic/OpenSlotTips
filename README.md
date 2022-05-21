@@ -3,8 +3,8 @@ Slot tips for the newbie to "gaming" (including myself), based off of Professor 
 
 
 * ***Only spend what you are willing to lose***
-* ***5 pulls, 1 cent, 1-99 credits*** required... 
-* ***3 pulls, 1 cent, 1-25 credits*** recommended... 
+* ***5 pulls, 1 cent, 1-90 credits (maximum)*** required... 
+* ***3 pulls, 1 cent, 1-25 credits (maximum)*** recommended... 
 	* ***Once per every machine type***
 	* ***Once you get the "taste"***, or small initial payout from that machine to entice people, you will want ***go to another type of machine*** as well.
 	* Note that ***even if the machines look alike, they can have different payout rates.***
@@ -15,17 +15,18 @@ Slot tips for the newbie to "gaming" (including myself), based off of Professor 
 * Try to ***avoid progressive slots.***
   * These are ***slots that, as people put money in, the jackpot grows until someone gets the jackpot***; then it starts over.
 * Try betting with machines with ***bonus features, unless it's too expensive.***
-* Do not use ***display machines*** or extra big group of machines.
+* ***Do not use*** a big display of machines.
 * **Winning (loose) machines are quite often location-based.**
 	* Go to a slot machine
 	* Turn around so your back is to it
 	* What do you see in front of the machine?
 		* If you see a wall, try another slot machine.
-		* If you see people looking back at you, that's a good canadate!
+		* If you see people looking back at you, that's a good candidate!
 		* If it's a popular place (Food court, entrance, bar, etc.) also good!
+	* If it's a good candidate, do the "required" values. 
+* If it's been more than 3 hours: try once more. If you win a ***micro-taste***: try every 3 hours.
 * Note that ***cruise ship casinos have almost 0 regulation.***
 	* So nothing is necessarily a thing on said casinos.
-* If it's been more than 3 hours: try once more. If you win a ***micro-taste***: try every 3 hours.
 
 ## My own tip
 

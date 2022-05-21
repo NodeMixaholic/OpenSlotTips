@@ -29,6 +29,8 @@ Slot tips for the newbie to "gaming" (including myself), based off of Professor 
 
 ## My own tip
 
+- - - -
+
 * Most if not youtubers who claim to be "casino techs" or something of the like are most likely scam artists.
 	* If theu ARE a tech, they are likely breaking a NDA, which they really shouldn't want to do.
 

@@ -3,6 +3,7 @@ Slot tips for the newbie to "gaming" (including myself), based off of Professor 
 
 
 * ***Only spend what you are willing to lose***
+* ***Stop spending at about 1/4 profit compared to your budget***
 * ***5 pulls, 1 cent, 1-90 credits (maximum)*** required... 
 * ***3 pulls, 1 cent, 1-78 credits (maximum)*** recommended... 
 	* ***Once per every machine type***
